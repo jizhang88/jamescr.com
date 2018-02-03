@@ -1,0 +1,2 @@
+# jamescr.com
+cr personal
